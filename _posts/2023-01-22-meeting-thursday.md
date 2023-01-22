@@ -13,9 +13,9 @@ In the meeting this week we'll be delivering warm-bank leaflets in the local are
 
 ## Time
 
-19:30 - 21:15
+19:30 - 21:15 
 
-## Location
+## Location
 
 Church centre as usual
 
